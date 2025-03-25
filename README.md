@@ -2,7 +2,6 @@
 - 👀 I’m interested in organs 
 - 🌱 I’m currently learning how to get them without any issues 
 - 📫 How to reach me: dont 
-- 😄 Pronouns: They/Their
 - ⚡ Fun fact: I am acctualy not real
 
 <!---
